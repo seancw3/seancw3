@@ -61,5 +61,6 @@ Cooking, hiking, lifting, board games, video games, and modeling.
 
 ## Get in touch
 
-- Email: seancmch@umich.edu
+- Work Email: seanc.w3@gmail.com
+- University Email: seancmch@umich.ed
 - LinkedIn: [linkedin.com/in/seancao-](https://linkedin.com/in/seancao-/)
